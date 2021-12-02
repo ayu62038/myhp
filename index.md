@@ -12,9 +12,9 @@
 ・[リングフィットアドベンチャー](https://www.nintendo.co.jp/ring/)
 
 ### ・動画鑑賞
-・[板橋ハウス]()
+・[板橋ハウス](https://www.youtube.com/channel/UC2NujFa5X09CdV0YCntmQDg)
 
-・[ホモサピ]()
+・[ホモサピ](https://www.youtube.com/channel/UCd0hscDvJvzRbo8Rk7JPQMA)
 
 ## 人生で一度はやってみたいことTOP３
 ### １.スカイダイビング
